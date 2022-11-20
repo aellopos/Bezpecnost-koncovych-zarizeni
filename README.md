@@ -1,0 +1,1 @@
+# Bezpecnost-koncovych-zarizeni
